@@ -1,1 +1,1 @@
-I'm Raghad Alzahrani my major is information technology.
+I'm Raghad Alzahrani my major is information technology..
